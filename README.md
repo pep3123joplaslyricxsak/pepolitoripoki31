@@ -1,2 +1,0 @@
-# pepolitoripoki31
-hwıd
